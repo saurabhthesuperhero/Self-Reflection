@@ -4,29 +4,29 @@
 
 ## Thinking Gap
 
-##### Issue:
+#### Issue:
 
 Using instagram and scrolling my thinking stopped or ignored and remember later or sometime never.
 
-##### Areas affected:
+#### Areas affected:
 
 My mind peace, My tasks which include daily life tasks, also thinking as a work I assume and caught up in something I was not interested. The post affects mentally ofcourse  its depend what I follow but current situation is if xyz meme channel will show you whatever they have been paid for. So emotinally in total different zone.
 
-##### Action:
+#### Action:
 
 Deleted Instagram. 
 
-##### Q&A:
+#### Q&A:
 
-###### Q.Why it matters? :
+##### Q.Why it matters? :
 
  because are we ready for sudden state of emotinal change? dont emotions last ? you are  happy at this moment sad at another in withought mobile life what is time interval between those moments? ofcourse not a split of second! Now you want to complete all the posts should be read, your reading speed is so fast you read in less than 1.5 seconds and check with number  of posts.Your emotions thoughts they are not ready for this change. 
 
-###### Q.Why you deleted ? :
+##### Q.Why you deleted ? :
 
 tried many options to control its my personal choice to delete for everyone it hits differnet but just answer my quesion How much IQ you increase by reading all this?.
 
-###### Q.We need refreshment, then why?:
+##### Q.We need refreshment, then why?:
 
 You need refreshment agree, but How much and with what? and after scrolling instgram posts, stories ,reels R u refreshed or tired?
 
