@@ -1,6 +1,6 @@
 
 
-## Thinking Gap
+## <mark>Thinking Gap</mark>
 
 #### Issue:
 
