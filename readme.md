@@ -1,5 +1,3 @@
-
-
 ## <mark>Thinking Gap</mark>
 
 #### Issue:
@@ -32,6 +30,6 @@ and how much time? 10 minutes fine but more than 30 minutes really?
 
 and if in actual if you open your app usages its more than 3-4 hour its surely not an refreshment!
 
-Now compare 10 years ago , what is refreshment? A newspaper with hardly one column with 5 jokes maybe 10! or some monthly edition comic book will give some 100 jokes, and how much memes , jokes you consume per day? maybe 100+!
+Now compare 10 years ago , what is refreshment? A newspaper with hardly one column with 5 jokes maybe 10! or some monthly edition comic book will give some 100 jokes, and Nowadays how much memes , jokes you consume per day? maybe 100+!
 
 R you really getting refresh or its just another work of exhaustment! Do you feel lighter? or heavier/ drained??
